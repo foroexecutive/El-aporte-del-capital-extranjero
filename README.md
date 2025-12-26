@@ -1,1 +1,2 @@
 # El-aporte-del-capital-extranjero
+La incorporación del capital extranjero había desarrollado extensamente la posibilidad de negocios, pero esa posibilidad no era ilimitada; quienes los practican saben perfectamente que la zona que corresponde a los negocios que puede realizar el habitante del país importador de capital, tiene en efecto una amplitud estrecha, de ahí el ansia incontenible de realizarlos cuanto antes. 
